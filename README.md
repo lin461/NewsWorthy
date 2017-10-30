@@ -1,3 +1,0 @@
-# NewsWorthy
-# NewsWorthy
-# NewsWorthy
